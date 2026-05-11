@@ -3,5 +3,5 @@ Quaisquer interesse em visualizar algum dos cases completos, pode entrar em cont
 
 
 Contato:<br />
-E-mail: celoliveira17@gmail.com <br />
+E-mail: oliveiraduka@gmail.com <br />
 Linkedin: https://www.linkedin.com/in/carlos-oliv/
